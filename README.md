@@ -1,5 +1,1 @@
 # 101274311_COMP_3104_assignment2
-# 101274311_COMP_3104_assignment2
-# 101274311_COMP_3104_assignment2
-# 101274311_COMP_3104_assignment2
-# 101274311_COMP_3104_assignment2
